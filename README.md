@@ -4,6 +4,11 @@
 - 💡 Always up for teaming up on projects that merge creativity with tech wizardry—turning concepts into polished products without blowing deadlines or budgets.
 - 📬 Slide into my DMs or reach me at www.hernanyacosta.com
 
+📌 Follow me:
+	•	🎨 Behance
+	•	💼 LinkedIn
+	•	📷 Instagram
+
 <!---
 achernany/achernany is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
