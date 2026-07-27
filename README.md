@@ -5,7 +5,6 @@
 - 📬 Slide into my DMs or reach me at www.hernanyacosta.com
 
 📌 Follow me:
-	•	🎨 Behance
 	•	💼 LinkedIn
 	•	📷 Instagram
 
